@@ -13,3 +13,8 @@ The ideas jotted in this file relate to my current situation and my life circums
 ## Chapter 3: Getting in the Door
 
 Online applications are usually black holes. Reach out to people online or in real life, have referrals and network on daily basis, not just when you need to find a contact (by this time, it's already too late)
+
+## Chapter 4: Resumes
+
+The path of least resistance for the recruiter is always to **toss the resume**!
+
